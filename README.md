@@ -3,7 +3,7 @@
 
 Final Result
 ------------
-![111](/uploads/400d1e0759ade93793484346ec890a5d/111.png)
+![111](https://user-images.githubusercontent.com/74496894/99186810-231ffd80-2753-11eb-8642-4d7cfe19122c.png)
 Link: https://www.youtube.com/watch?v=Wcsz3wcfxwY
 
 Description
